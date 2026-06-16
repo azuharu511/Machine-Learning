@@ -6,8 +6,8 @@
 
 ## 👥 Anggota Kelompok
 
-1. Aldiana Putra (233051101)
-2. Muhammad Farhan Maulana Ardiansyah (2330511038)
+1. Tibia Ar Robbi (2330511072)
+
 
 ---
 
