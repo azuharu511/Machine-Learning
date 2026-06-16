@@ -7,6 +7,7 @@
 ## 👥 Anggota Kelompok
 
 1. Tibia Ar Robbi (2330511072)
+2. Farhan Fadillah (2330511014)
 
 
 ---
